@@ -1,4 +1,4 @@
-p align="center">  
+"center">  
  <a href="https://telegra.ph/file/953048fb3aa3aae12a12a.jpg">
     <img alt="SAKURA MD" height="300" src="https://telegra.ph/file/953048fb3aa3aae12a12a.jpg">
    

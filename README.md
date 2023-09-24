@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨:+𝐂𝐲𝐛𝐞𝐫+𝐖𝐚𝐫𝐫𝐢𝐨𝐫𝐬+𝐗+𝐓𝐞𝐚𝐦;ᴏᴡɴᴇʀ+ʙʏ+ʏᴀsɪʏᴀ+ᴏғғɪᴄɪᴀʟ;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+ᴛʜᴇᴇᴋsʜᴀɴᴀ+AND+ᴠɪᴍᴜᴋᴛʜɪ;ᴘᴏᴡᴇʀᴅ+ʙʏ:+ᴄʏʙᴇʀ+ᴡᴀʀʀɪᴏʀs+x+ᴛᴇᴀᴍ)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨:+𝐂𝐲𝐛𝐞𝐫+𝐖𝐚𝐫𝐫𝐢𝐨𝐫𝐬+𝐗+𝐓𝐞𝐚𝐦;ᴏᴡɴᴇʀ+ʙʏ+sʀɪᴍᴀʟ+ᴏғғɪᴄɪᴀʟ;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+ᴛʜᴇᴇᴋsʜᴀɴᴀ+AND+ᴠɪᴍᴜᴋᴛʜɪ;ᴘᴏᴡᴇʀᴅ+ʙʏ:+ᴄʏʙᴇʀ+ᴡᴀʀʀɪᴏʀs+x+ᴛᴇᴀᴍ)](https://git.io/typing-svg)
 
 <!---
 CyberWarriorsX/CyberWarriorsX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
